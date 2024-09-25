@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @brunaalves16
 - 👀 I’m interested in learn
 - 🌱 I’m currently learning English 
-- 📫 How to reach me first company
+- 📫 How to reach me: by email 
 - 😄 Pronouns: she/her
 
 <!---
